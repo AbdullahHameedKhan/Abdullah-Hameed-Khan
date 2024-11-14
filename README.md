@@ -1,2 +1,2 @@
-# Abdullah-Hameed-Khan
+# AbdullahHameedKhan
 Hello I'm Abdullah 🎃
